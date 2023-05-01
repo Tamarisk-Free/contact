@@ -4,6 +4,8 @@
 
 Tamarisk#3723
 
+**Even better!** Join my Discord server https://discord.com/invite/Q9VGzV5EAp and you can contact my profile without friend request, since I allow contacts from shared servers (you can still add me later)
+
 User ID : 850498850674573372
 
 ### Store Shoppy
